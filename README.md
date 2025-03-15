@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CaelusSantanna
 - 👀 I’m interested in ROBOTICSSSSUP
 - 🌱 I’m currently learning HOW TO WIN
-- <del>💞️ I’m looking to collaborate on ...</del>
+- 💞️ Ganni we love you
 - <del>📫 How to reach me ...</del>
 
 <!---
